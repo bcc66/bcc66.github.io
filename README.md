@@ -4,10 +4,10 @@
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
 ## 备用地址：
-1. [地址①：https://liuliuwu7.top](https://liuliuwu7.top)
+1. [地址①：https://wb.xqy01.top](https://wb.xqy01.top)
 2. [地址②：https://y7uf.top](https://y7uf.top)
 3. [地址③：https://46ewn.top](https://46ewn.top)
-4. [地址④：https://3z75.top](https://3z75.top)
+4. [地址④：https://wb.xqy02.top](https://wb.xqy02.top)
 5. [地址⑤：http://23.224.59.100](http://23.224.59.100) （防屏蔽地址，可能随时失效，请勿记）
 
  **找回邮箱**：qiqiwuqi7757@gmail.com
