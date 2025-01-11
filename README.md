@@ -8,7 +8,7 @@
 2. [地址②：https://y7uf.top](https://y7uf.top)
 3. [地址③：https://wb.xqy01.top](https://wb.xqy01.top)
 4. [地址④：https://wb.xqy02.top](https://wb.xqy02.top)
-5. [地址⑤：http://wb.xqy05.top](http://wb.xqy05.top) 
+5. [地址⑤：http://wb2.xqy06.top](http://wb2.xqy06.top) 
 
  **找回邮箱**：qiqiwuqi7757@gmail.com
 
