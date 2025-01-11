@@ -4,7 +4,7 @@
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
 ## 备用地址：
-1. [地址①：https://wb.xqy03.top](https:/wb.xqy03.top)
+1. [地址①：https://wb2.xqy06.top](https:/wb2.xqy06.top)
 2. [地址②：https://y7uf.top](https://y7uf.top)
 3. [地址③：https://wb.xqy01.top](https://wb.xqy01.top)
 4. [地址④：https://wb.xqy02.top](https://wb.xqy02.top)
