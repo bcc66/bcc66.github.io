@@ -3,13 +3,13 @@
 ## 主要发布页：
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
-## 备用地址：
+## 主站地址：
 1. [地址①：https://wb2.xqy06.top](https:/wb2.xqy06.top)
 2. [地址②：https://y7uf.top](https://y7uf.top)
 3. [地址③：https://wb.xqy01.top](https://wb.xqy01.top)
 4. [地址④：https://wb.xqy02.top](https://wb.xqy02.top)
 5. [地址⑤：http://wb.xqy05.top](http://wb.xqy05.top) 
-
+6. [地址⑥：http://xqy04.top(备用)](http://38.207.170.90) 
  **找回邮箱**：qiqiwuqi7757@gmail.com
 
 通过发送任意邮件至该邮箱，您将会自动收到当前最新的发布地址信息，确保您始终保持访问。
