@@ -5,11 +5,11 @@
 
 ## 主站地址：
 1. [地址①：https://wb2.xqy06.top](https:/wb2.xqy06.top)
-2. [地址②：https://xqy07.top](https://xqy07.top)
-3. [地址③：https://xqy09.top](https://xqy09.top)
-4. [地址④：https://xqy08.top](https://xqy08.top)
+2. [地址②：https://xqy10.top](https://xqy10.top)
+3. [地址③：https://xqy12.top](https://xqy12.top)
+4. [地址④：https://xqy13.top](https://xqy13.top)
 5. 
-6. [地址⑥：http://xqy04.top(备用)](http://38.207.170.90)
+6. [地址⑥：http://xqy14.top(备用)](http://xqy14.top)
 
  **找回邮箱**：qiqiwuqi7757@gmail.com
 
