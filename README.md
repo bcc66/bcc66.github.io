@@ -5,9 +5,9 @@
 
 ## 主站地址：
 1. [地址①：https://wb2.xqy06.top](https:/wb2.xqy06.top)
-2. [地址②：https://m.xqy15.top](https://m.xqy15.top)
-3. [地址③：https://xqy12.top](https://xqy12.top)
-4. [地址④：https://m.xqy16.top](https://m.xqy16.top)
+2. [地址②：https://m2.xingqu2.top](https://m2.xingqu2.top)
+3. [地址③：https://m3.xingqu3.top](https://m3.xingqu3.top)
+4. [地址④：https://m4.xingqu4.top](https://m4.xingqu4.top)
 5. 
 6. [地址⑥：http://m1.xingqu1.top](http://m1.xingqu1.top)
 
