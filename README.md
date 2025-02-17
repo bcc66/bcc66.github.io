@@ -4,7 +4,7 @@
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
 ## 主站地址：
-1. [地址①：https://wb2.xqy06.top](https:/wb2.xqy06.top)
+1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
 2. [地址②：https://z1.xingqu5.top](https://z1.xingqu5.top)
 3. [地址③：https://m3.xingqu3.top](https://m3.xingqu3.top)
 4. [地址④：https://m4.xingqu4.top](https://m4.xingqu4.top)
