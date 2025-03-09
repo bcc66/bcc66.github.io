@@ -5,9 +5,9 @@
 
 ## 主站地址：
 1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
-2. [地址②：https://z1.xingqu5.top](https://z1.xingqu5.top)
+2. [地址②：https://xqy13.top](https://xqy13.top)
 3. [地址③：https://d.xingqu3.top](https://d.xingqu3.top)
-4. [地址④：https://m4.xingqu4.top](https://m4.xingqu4.top)
+4. [地址④：https://m.xqy04.top](https://m.xqy04.top)
 5. 
 6. [地址⑥：备用地址](https://add133.top/tz.html)
 
