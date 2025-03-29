@@ -7,7 +7,7 @@
 1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
 2. [地址②：https://xqy13.top](https://xqy13.top)
 3. [地址③：https://d.xingqu3.top](https://d.xingqu3.top)
-4. [地址④：https://gg.xqy04.top](https://gg.xqy04.top)
+4. [地址④：https://mm.xqy04.top](https://add133.top/tz.html/tz.html?domain=xqy04.top)
 5. 
 6. [地址⑥：备用地址](https://add133.top/tz.html)
 
