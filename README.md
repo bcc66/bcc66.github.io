@@ -7,7 +7,7 @@
 1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
 2. [地址②：https://xqy13.top](https://xqy13.top)
 3. [地址③：gg.xingqu7.top(如被屏蔽把前缀的gg改成别的)](https://gg.xingqu7.top)
-4. [地址④：mm.xqy04.top(如被屏蔽把前缀的mm改成别的)]](https://mm.xqy04.top)
+4. [地址④：mm.xqy04.top(如被屏蔽把前缀的mm改成别的)](https://mm.xqy04.top)
 5. 
 6. [地址⑥：备用地址](https://add133.top/tz.html)
 
