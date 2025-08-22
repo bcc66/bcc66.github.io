@@ -5,9 +5,9 @@
 
 ## 主站地址：
 1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
-2. [地址②：https://gg.xingqu8.top(如被屏蔽把前缀的gg改成别的)](https://gg.xingqu8.top)
-3. [地址③：https://b2.xingqu9.top](https://b2.xingqu9.top)
-4. [地址③：https://a1.xingqu2.top](https://a1.xingqu2.top)
+2. [地址②：up.asdas2.top](https://up.asdas2.top)
+3. [地址③：https://rp.asdas3.top](https://rp.asdas3.top)
+4. [地址③：https://vb.asdas4.top](https://vb.asdas4.top)
 5. 
 6. [地址⑥：备用地址](https://add133.top/tz.html)
 
