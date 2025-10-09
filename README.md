@@ -4,12 +4,12 @@
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
 ## 主站地址：
-1. [地址①：https://x1.xingqu6.top](https:/x1.xingqu6.top)
+1. [地址①：fg.xingqy001.top](https://fg.xingqy001.top)
 2. [地址②：up.asdas2.top](https://up.asdas2.top)
-3. [地址③：xds.asdas5.top](https://xds.asdas5.top/)
-4. [地址③：https://vb.asdas4.top](https://vb.asdas4.top)
+3. [地址③：fg.xingqy002.top](https://fg.xingqy002.top)
+4. [地址③：vb.asdas4.top](https://vb.asdas4.top)
 5. 
-6. [地址⑥：备用地址](https://add133.top/tz.html)
+6. [地址⑥：m3.xingqu3.top](https://m3.xingqu3.top)
 
  **找回邮箱**：qiqiwuqi7757@gmail.com
 
