@@ -9,7 +9,7 @@
 3. [地址③：fg.xingqy002.top](https://fg.xingqy002.top)
 4. [地址③：vb.asdas4.top](https://vb.asdas4.top)
 5. 
-6. [地址⑥：wb3.xingqy004.top](https://wb3.xingqy004.top)
+6. [地址⑥：wb.eedff1.top](https://wb.eedff1.top)
 
  **找回邮箱**：qiqiwuqi7757@gmail.com
 
