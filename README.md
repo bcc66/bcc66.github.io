@@ -4,9 +4,9 @@
 - [发布页：www.xqy789.com](http://www.xqy789.com)
 
 ## 主站地址：
-1. [地址① ty.xingqy003.top](https://ty.xingqy003.top)
+1. [地址① m.eedff10.top](https://m.eedff10.top)
 2. [地址②：xds.asdas5.top](https://xds.asdas5.top)
-3. [地址③：fg.xingqy002.top](https://fg.xingqy002.top)
+3. [地址③：m.eedff11.top](https://m.eedff11.top)
 4. [地址③：m.eedff8.top（新）](https://m.eedff8.top)
 5. 
 6. [地址⑥：wb.eedff1.top](https://wb.eedff1.top)
