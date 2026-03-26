@@ -24,7 +24,6 @@
 若上方线路均无法打开，请尝试访问我们的永久主入口：
 
 * **🔗 官方地址： [www.xqy789.com](https://www.xqy789.com)**
-* **🔗 备用地址： [xqy-publish.pages.dev](https://xqy-publish.pages.dev)** *(建议增加一个如 Cloudflare Pages 的备用)*
 
 ---
 
