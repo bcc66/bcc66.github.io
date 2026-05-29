@@ -13,7 +13,7 @@
 | 线路名称 | 接入地址 | 域名标识 | 运行状态 |
 | :--- | :--- | :--- | :--- |
 | **推荐线路 A** | [👉 立即进入](https://m.xxxdd1.top) | `m.xxxdd1.top` | <font color="#2ea44f">● 正常运行</font> |
-| **推荐线路 B** | [👉 立即进入](https://n.xingqu48.top) | `xingqu48.top` | <font color="#2ea44f">● 正常运行</font> |
+| **推荐线路 B** | [👉 立即进入](https://m.xxxdd2.top) | `m.xxxdd2.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 C** | [👉 立即进入](https://m.xingqu46.top) | `m.xingqu46.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 D** | [👉 立即进入](https://m.eedff8.top/) | `m.eedff8.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 E** | [👉 立即进入](https://eedff12.top) | `eedff12.top` | <font color="#2ea44f">● 正常运行</font> |
