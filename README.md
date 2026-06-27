@@ -15,7 +15,7 @@
 | **推荐线路 A** | [👉 立即进入](https://m.xxxdd1.top) | `m.xxxdd1.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 B** | [👉 立即进入](https://m.xxxdd2.top) | `m.xxxdd2.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 C** | [👉 立即进入](https://m.xingqu46.top) | `m.xingqu46.top` | <font color="#2ea44f">● 正常运行</font> |
-| **推荐线路 D** | [👉 立即进入](https://m.eedff8.top/) | `m.eedff8.top` | <font color="#2ea44f">● 正常运行</font> |
+| **推荐线路 D** | [👉 立即进入](https://m.xxxdd6.top) | `m.xxxdd6.top` | <font color="#2ea44f">● 正常运行</font> |
 | **推荐线路 E** | [👉 立即进入](https://m.xxxdd5.top) | `m.xxxdd5.top` | <font color="#2ea44f">● 正常运行</font> |
 
 ---
